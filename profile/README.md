@@ -128,7 +128,7 @@ Ghost Mode allows you to play anonymously, preventing other players from raiding
 Yes, Coin Master is free to download and play. However, in-app purchases are available for players who want to accelerate their progress.
 
 ### **2. How Many Villages Are There in Coin Master?**
-As of December 2024, there are over 400 villages in Coin Master, with new villages added regularly.
+As of today, there are over 400 villages in Coin Master, with new villages added regularly.
 
 ### **3. Can Coin Master Be Played Offline?**
 No, Coin Master requires an active internet connection to play.
