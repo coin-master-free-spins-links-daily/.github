@@ -3,7 +3,7 @@
 ---
 
 ## **Introduction to Coin Master**
-![Screenshot of the Application](coin-master-free-spin.webp)
+![Coin Master Free Spins](coin-master-free-spins.webp)
 
 Coin Master is a highly engaging mobile game developed by Moon Active. Since its launch in 2015, it has garnered immense popularity with over 100 million downloads worldwide. The game combines the thrill of slot machines with village-building mechanics, offering players a unique and addictive gaming experience. However, progressing in Coin Master requires spins and coins, making free spins and coins a crucial aspect of the game.
 
